@@ -11,4 +11,5 @@ Vivo en Campana y mi numero de legajo es 11871.
 - Soy hincha y socio de Villa Dalmine.
 
 ![](https://upload.wikimedia.org/wikipedia/commons/c/c7/Villa_Dalmine_logo.png)   
--
+- En mi tiempo libre me voy a pescar con amigos a la costanera o al club.
+- 
