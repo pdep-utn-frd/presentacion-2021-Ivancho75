@@ -13,5 +13,4 @@ Vivo en Campana y mi numero de legajo es 11871.
 ![](https://upload.wikimedia.org/wikipedia/commons/c/c7/Villa_Dalmine_logo.png)   
 - En mi tiempo libre me voy a pescar con amigos a la costanera o al club.
 - Tengo muchas peliculas favorita pero una de estas es Titanic(aunque sea bastante  larga).
-- 
-- 
+- Si me quieren seguir dejo mi perfil aca  [instagram][https://www.instagram.com/ivancho_rossi/?hl=af]
