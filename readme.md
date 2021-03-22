@@ -9,5 +9,6 @@ Vivo en Campana y mi numero de legajo es 11871.
 - Juego al ajedrez y competi en varios  torneos.
 - No  tengo mascotas en mi casa.  
 - Soy hincha y socio de Villa Dalmine.
+
 ![](https://upload.wikimedia.org/wikipedia/commons/c/c7/Villa_Dalmine_logo.png)   
 -
