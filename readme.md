@@ -8,5 +8,5 @@ Vivo en Campana y mi numero de legajo es 1178.
 - ME gusta jugar al basket y hago este deporte desde que tengo  5 años,jugue siempre para el club ciudad de campana como se ve en la foto.  
 - Juego al ajedrez y competi en varios  torneos.
 - No  tengo mascotas en mi casa.
-- 
+-Soy hincha y socio de Villa Dalmine.
   
